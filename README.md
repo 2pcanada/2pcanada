@@ -4,8 +4,7 @@
 
 <details align="center"> 
 <summary>$\color{lightblue}{Click \space Me. \space (ㅍ-ㅍ)}$</summary>  
-  
- ᛝ ───── ⑅ ♡ ⑅ ───── ᛝ
+ᛝ ───── ⑅ ♡ ⑅ ───── ᛝ
 
 $\color{lightblue}{About \space Me.}$ 
 
@@ -19,7 +18,7 @@ $\color{lightblue}{Ponytown.}$
 
 ꜢㅤI rarely / never interact first unless you do, even if we are friends on this game
 
-ꜢㅤI will allow C + H if we're in the same fandom
+ꜢㅤI only encourage C + H if we are in the same fandom
 
  ᛝ ───── ⑅ ♡ ⑅ ───── ᛝ
  
