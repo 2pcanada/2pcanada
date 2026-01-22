@@ -28,7 +28,7 @@ $\color{lightblue}{Favourite.⠀:)}$
 
 ꒱ㅤRussia, Belarus and Ukraine (The actual countries itself, Countryballs, Countryhumans and Hetalia) (Also interested in Kyivan Rus)
 
-꒱ㅤSerbia (The actual country itself, Countryballs, Countryhumans and Hetalia)
+꒱ㅤSerbia (The actual country itself, Countryballs, Countryhumans and Hetalia / Yugotalia)
 
 ꒱ㅤEngland (Countryballs, Countryhumans and Hetalia) (The British make great music)
 
