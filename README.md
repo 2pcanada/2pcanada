@@ -22,15 +22,15 @@ $\color{lightblue}{Ponytown.}$
 
 ꒱ㅤI only encourage C + H if we are in the same fandom
 
-$\color{lightblue}{Favourites⠀:)}$ 
+$\color{lightblue}{Favourite⠀:)}$ 
 
 ꒱ㅤRussia, Belarus and Ukraine (The actual countries itself, Countryballs, Countryhumans and Hetalia)
 
-꒱ㅤSerbia (Countryballs, Countryhumans and Hetalia)
+꒱ㅤSerbia (The actual country itself, Countryballs, Countryhumans and Hetalia)
 
 ꒱ㅤEngland (Countryballs, Countryhumans and Hetalia) (The British make great music)
 
-꒱ㅤCanada (Countryballs, Countryhumans and Hetalia)
+꒱ㅤCanada (The actual country itself, Countryballs, Countryhumans and Hetalia)
 
 ꒱ㅤSwitzerland (Countryballs, Countryhumans and Hetalia)
 
