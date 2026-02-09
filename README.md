@@ -37,7 +37,7 @@ $\color{red}{Favourite.⠀:)}$
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
  
-**ᛝ [Sign Book](https://belayarus.atabook.org/)** $\color{lightblue}{ 𖥠 }$ **[Last.fm](https://www.last.fm/user/maplehaven/) ᛝ**
+**ᛝ [Last.fm](https://www.last.fm/user/maplehaven/) ᛝ**
 
 <p align="center">
   <img src="Lith.gif"/>
