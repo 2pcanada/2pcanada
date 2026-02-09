@@ -1,41 +1,39 @@
 <p align="center">
-<img src="suckonhisballspeasant.jpg"/>
+<img width="236" height="481" alt="image" src="https://github.com/user-attachments/assets/b3c8f9dc-d4a3-4b3d-b644-c0a41ed7ada5" />
 </p>
 
 <details align="center"> 
 <summary>$\color{white}{Click \space Me. \space (ㅍ-ㅍ)}$</summary>
- <img width="348" height="310" alt="image" src="https://github.com/user-attachments/assets/a212276d-2e68-4425-ace1-4c05bf6fe99c" />
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-$\color{lightblue}{About \space Me.}$ 
-
-꒱ㅤAPH Belarus / Nyo Belarus Fictkin
+$\color{red}{About \space Me.}$ 
 
 ꒱ㅤ16 years old (turning 17 this April)
 
 ꒱ㅤHe / She
 
+꒱ㅤSelective sharing Russia yume ..
+
 ᛝ ── ⑅ ♡ ⑅ ── ᛝ
 
-$\color{lightblue}{Ponytown.}$ 
+$\color{red}{Ponytown.}$ 
+
+꒱ㅤI tend to play roughly with people, if you don't like that please talk to me about it.
 
 ꒱ㅤI rarely / never interact first unless you do, even if we are friends on this game since I have severe social anxiety. I hope you understand
 
 ꒱ㅤI only encourage C + H if we are in the same fandom
 
-$\color{lightblue}{Favourite.⠀:)}$ 
+$\color{red}{Favourite.⠀:)}$ 
 
 ꒱ㅤRussia, Belarus and Ukraine (The actual countries itself, Countryballs, Countryhumans and Hetalia) (Also interested in Kyivan Rus)
+
+꒱ㅤCanada (The actual country itself, Countryballs, Countryhumans and Hetalia)
 
 ꒱ㅤSerbia (The actual country itself, Countryballs, Countryhumans and Hetalia / Yugotalia)
 
 ꒱ㅤEngland (Countryballs, Countryhumans and Hetalia) (The British make great music)
-
-꒱ㅤCanada (The actual country itself, Countryballs, Countryhumans and Hetalia)
-
-꒱ㅤSwitzerland (Countryballs, Countryhumans and Hetalia)
-
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
  
