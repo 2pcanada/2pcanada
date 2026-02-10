@@ -13,7 +13,7 @@ $\color{red}{About \space Me.}$
 
 ꒱ㅤHe / She
 
-꒱ㅤSelective sharing Russia yume ..
+꒱ㅤSelective sharing Russia yume .. (Countryhumans and Hetalia)
 
 ᛝ ── ⑅ ♡ ⑅ ── ᛝ
 
