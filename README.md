@@ -37,7 +37,7 @@ $\color{red}{Favourite.⠀:)}$
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
  
-**ᛝ [Last.fm](https://www.last.fm/user/maplehaven/) [Straw](https://angelofdestruction.straw.page/) ᛝ**
+**ᛝ [Last.fm](https://www.last.fm/user/maplehaven/) [Straw](https://erzengel.straw.page/) ᛝ**
 
 <p align="center">
   <img src="Lith.gif"/>
