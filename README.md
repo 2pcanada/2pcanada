@@ -2,42 +2,11 @@
 <img src="Cute.gif"/>
 </p>
 
-<details align="center"> 
-<summary>$\color{white}{Click \space Me. \space (ㅍ-ㅍ)}$</summary>
+<p align="center"> 
 
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-
-$\color{red}{About \space Me.}$ 
-
-꒱ㅤ16 years old (turning 17 this April)
-
-꒱ㅤHe / She
-
-꒱ㅤSelective sharing Russia yume .. (Countryhumans and Hetalia)
-
-ᛝ ── ⑅ ♡ ⑅ ── ᛝ
-
-$\color{red}{Ponytown.}$ 
-
-꒱ㅤI tend to play roughly with people, if you don't like that please talk to me about it.
-
-꒱ㅤI rarely / never interact first unless you do, even if we are friends on this game since I have severe social anxiety. I hope you understand
-
-꒱ㅤI only encourage C + H if we are in the same fandom
-
-$\color{red}{Favourite.⠀:)}$ 
-
-꒱ㅤRussia, Belarus and Ukraine (The actual countries itself, Countryballs, Countryhumans and Hetalia) (Also interested in Kyivan Rus)
-
-꒱ㅤCanada (The actual country itself, Countryballs, Countryhumans and Hetalia)
-
-꒱ㅤSerbia (The actual country itself, Countryballs, Countryhumans and Hetalia / Yugotalia)
-
-꒱ㅤEngland (Countryballs, Countryhumans and Hetalia) (The British make great music)
-
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+I GIVE UP ON MAKING THIS AESTHETIC IM DONE WITH THIS MARKDOWN BULLSHIT JUST CHECK OUT MY LINKS
  
-**ᛝ [Last.fm](https://www.last.fm/user/maplehaven/) [Straw](https://erzengel.straw.page/) ᛝ**
+**[LAST.FM](https://www.last.fm/user/maplehaven/) [STRAW](https://erzengel.straw.page/)**
 
 <p align="center">
   <img src="Lith.gif"/>
