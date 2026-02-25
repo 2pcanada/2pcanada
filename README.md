@@ -3,9 +3,9 @@
 </p>
 
 <p align="center"> 
+I GIVE UP ON MAKING THIS AESTHETIC IM DONE WITH THIS CODING BULLSHIT JUST CHECK OUT MY LINKS
+</p>
 
-I GIVE UP ON MAKING THIS AESTHETIC IM DONE WITH THIS MARKDOWN BULLSHIT JUST CHECK OUT MY LINKS
- 
 **[LAST.FM](https://www.last.fm/user/maplehaven/) [STRAW](https://erzengel.straw.page/)**
 
 <p align="center">
