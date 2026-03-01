@@ -6,6 +6,10 @@
 I GIVE UP ON MAKING THIS AESTHETIC IM DONE WITH THIS CODING BULLSHIT JUST CHECK OUT MY LINKS + I follow back if I think youre awesome
 </p>
 
+<p align="center">
+ALSO NO I DID NOT UNFRIEND YOU IM JUST ON OFFLINE MODE SOMETIMES CALM YOUR ASS DOWN YO
+</p>
+
 **[LAST.FM](https://www.last.fm/user/maplehaven/) [STRAW](https://erzengel.straw.page/)**
 
 <p align="center">
