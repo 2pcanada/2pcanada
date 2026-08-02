@@ -1,5 +1,5 @@
 <div align="center">
-I am too lazy to make this look aesthetic. If you want something appealing to look at, I suggest you click the links below.
+I am too lazy to make this look aesthetic. If you want something appealing to look at I suggest you click the links below.
 <div align="center">
   
 <img width="360" height="230" alt="image" src="https://github.com/user-attachments/assets/4fd26bc3-b156-48c0-a01e-7598f3f43672" />
