@@ -1,6 +1,6 @@
 <div align="center">
 <img width="360" height="230" alt="image" src="https://github.com/user-attachments/assets/4fd26bc3-b156-48c0-a01e-7598f3f43672" />
-<p align="center"><a href="https://rentry.co/natalliaarlouskaya">Rentry</a>
+<p align="center"><a href="https://rentry.co/natalliaarlouskaya">Rentry</a> <p align="center"><a href="https://pronouns.cc/@belarus">Pronouns.cc</a>
 
 <img width="264" height="216" alt="image" src="https://github.com/user-attachments/assets/7b2f2bea-c091-4cc9-95d1-5727d909ef59" /> <img src="Happy.jpg"/> <img src="sashenkapet.gif"/> <img width="335" height="186" alt="image" src="https://github.com/user-attachments/assets/045e5efa-8ada-41a8-bff8-591afed0e4f4" />
 
