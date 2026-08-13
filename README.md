@@ -1,9 +1,7 @@
 <div align="center">
-I am too lazy to make this look aesthetic. If you want something appealing to look at I suggest you click the link below.
 <div align="center">
   
 <img src="IMG_1295.jpg"/>
-<p align="center"><a href="https://rentry.co/lovespiralsdownwards">Rentry</a>
 
 <img width="200" height="%" alt="image" src="https://github.com/user-attachments/assets/7b2f2bea-c091-4cc9-95d1-5727d909ef59" /> <img src="Happy.jpg"/> <img src="sashenkapet.gif"/><img width="335" height="186" alt="image" src="https://github.com/user-attachments/assets/045e5efa-8ada-41a8-bff8-591afed0e4f4" />
 
